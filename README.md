@@ -13,6 +13,8 @@ My name is Pengjie, but all my friends calls me ✨ *PJ* ✨ and I am a backend 
 
 ⚡ Fun fact: I especially enjoy tinkering and soldering with devices, and building things! Ask me about my custom mech keyboard.
 
+❤️ I also have an absurd amount of love for filming
+
 <!--
 **isshougai/isshougai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
